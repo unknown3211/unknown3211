@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.ibb.co/9mCdhdC8/UJLogo.png"  />
+<img align="right" height="150" src="https://i.ibb.co/84G21TdX/udpp.png"  />
 
 ###
 
